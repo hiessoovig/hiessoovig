@@ -29,7 +29,7 @@
 <br> я очень сговорчивый и понимающий человек. если между нами возникло какое-то недопонимание - прошу всё обсуждать открыто. 
 </p>
 <p>
-<br> ㅤㅤㅤㅤㅤㅤ<img width="220" src='https://github.com/hiessoovig/hiessoovig/blob/main/1735e1206276dfe36b971c4ec24b6c81.jpg?raw=true'><img width="220" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_00ebc151e6093402a476154aa664af36_e40cbeb1_1280.gif.gif?raw=true'><img width="220" src='https://github.com/hiessoovig/hiessoovig/blob/main/photo_2025-08-14_01-42-04.jpg?raw=true'>
+<br> ㅤㅤㅤㅤㅤㅤ<img width="240" src='https://github.com/hiessoovig/hiessoovig/blob/main/1735e1206276dfe36b971c4ec24b6c81.jpg?raw=true'><img width="240" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_00ebc151e6093402a476154aa664af36_e40cbeb1_1280.gif.gif?raw=true'><img width="240" src='https://github.com/hiessoovig/hiessoovig/blob/main/photo_2025-08-14_01-42-04.jpg?raw=true'>
 </p>
 <p>
        <br> Фандомы!
