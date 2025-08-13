@@ -3,7 +3,7 @@
 </p>
 
 <p align="center"
-<br> <img width="400" src='https://github.com/hiessoovig/456/blob/main/tumblr_47d34d078a0f3c58d47e84b023d1c8fd_a4d40593_1280.webp?raw=true'
+<br> <img width="400" src='https://github.com/hiessoovig/456/blob/main/tumblr_47d34d078a0f3c58d47e84b023d1c8fd_a4d40593_1280.webp?raw=true'>
        </p>
 <p align="center" 
 <br> зови меня Хие́с! 
