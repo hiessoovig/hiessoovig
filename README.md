@@ -19,7 +19,7 @@
 </p>        
 
 <p align='center' 
-<br> <img width="150" src='https://github.com/hiessoovig/456/blob/main/tumblr_e76cb752c6b54de599a23995033e9ff2_ab9a8aa3_250.gif.gif?raw=true'>
+<br> <img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e76cb752c6b54de599a23995033e9ff2_ab9a8aa3_250.gif.gif?raw=true'>
 <br> DNI: если вы хотите доебаться до моего скина или до пейринга за который я сижу с партнёром;
 <br> сексисты/расисты/псевдотолерашки и т.д. мои шутки могут быть грязными, но я уважаю всех;
 <br> >> ранимые и чувствительные люди. лучше предупредите меня об этом
