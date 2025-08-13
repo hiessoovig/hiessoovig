@@ -14,7 +14,7 @@
 </p>
 
 <p align="center"
-<br> <img width="300" src='https://github.com/hiessoovig/456/blob/main/4oKz5y8pWwVEX2O3PHpAOqVrJIP8ywRsaIg8ozOE6wLprO9yHimuFhF7pXMBXKXrM3T6OT7vidSx7Kf7UWxu0dDc.jpg?raw=true'>
+<br> <img width="300" src='https://github.com/hiessoovig/hiessoovig/blob/main/4oKz5y8pWwVEX2O3PHpAOqVrJIP8ywRsaIg8ozOE6wLprO9yHimuFhF7pXMBXKXrM3T6OT7vidSx7Kf7UWxu0dDc.jpg?raw=true'>
 <br> зачастую сижу в пт рядом с моим партнёром и лучшими друзьями. большую часть времени offtab, так что w2i!
 </p>        
 
