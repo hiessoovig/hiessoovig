@@ -56,5 +56,5 @@
 <p align='center' 
 <br> ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 <br> <strong>всем прочитавшим спасибо за внимание. держите еще немного кинн пикч</strong>
-<br> <img width="400" src='https://github.com/hiessoovig/hiessoovig/blob/main/m_t-IjRCLBo.jpg?raw=true'> <img width="358" src='https://github.com/hiessoovig/456/blob/main/rmSzM-RpdVo.jpg?raw=true'> <img width="400" src='https://github.com/hiessoovig/456/blob/main/v4jp8WqFcvQ.jpg?raw=true'>
+<br> <img width="400" src='https://github.com/hiessoovig/hiessoovig/blob/main/m_t-IjRCLBo.jpg?raw=true'> <img width="358" src='https://github.com/hiessoovig/hiessoovig/blob/main/rmSzM-RpdVo.jpg?raw=true'> <img width="400" src='https://github.com/hiessoovig/hiessoovig/blob/main/v4jp8WqFcvQ.jpg?raw=true'>
 </p>
