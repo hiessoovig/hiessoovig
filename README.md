@@ -29,7 +29,7 @@
 <br> я очень сговорчивый и понимающий человек. если между нами возникло какое-то недопонимание - прошу всё обсуждать открыто. 
 </p>
 <p>
-<br> ㅤㅤㅤㅤㅤㅤ<img width="290" src='https://github.com/hiessoovig/hiessoovig/blob/main/1735e1206276dfe36b971c4ec24b6c81.jpg?raw=true'><img width="290" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_00ebc151e6093402a476154aa664af36_e40cbeb1_1280.gif.gif?raw=true'><img width="300" src='https://github.com/hiessoovig/456/blob/main/photo_2025-08-14_01-42-04.jpg?raw=true'>
+<br> ㅤㅤㅤㅤㅤㅤ<img width="290" src='https://github.com/hiessoovig/hiessoovig/blob/main/1735e1206276dfe36b971c4ec24b6c81.jpg?raw=true'><img width="290" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_00ebc151e6093402a476154aa664af36_e40cbeb1_1280.gif.gif?raw=true'><img width="300" src='https://github.com/hiessoovig/hiessoovig/blob/main/photo_2025-08-14_01-42-04.jpg?raw=true'>
 </p>
 <p>
        <br> Фандомы!
@@ -38,7 +38,7 @@
 <br> <strong>Игры:</strong> League of Legends, Cookie Run Kingdom, Genshin Impact, Honkai Star Rail, Zenless Zone Zero, Omori, Hollow Knight, The Binding of Isaac, Don't Starve Together, Terraria + Calamity mode, Minecraft, Stardew Walley, The Elder Scrolls V: Skyrim, We Were Here (все игры), Phasmophobia, Outer Wilds, Cuphead, The Forest, Sons of the Forest, Content Warning, Cult of the Lamb, Dark Deception, Unravel Two, Portal, Starbound, MO:Astray, Doki Doki Literature Club, Subnautica, Escape The Backrooms, Undertale, Deltarune, Overwatch, Your Boyfriend, Satsuriku no Tenshi, Fear and Hunger
 <br>
 <br><strong>Аниме, манги, веб-комиксы, мультфильмы:</strong> Homestuck, Heavens Offical's Blessing, Jujutsu Kaisen, Bungou Stray Dogs, Demon Slayer: Kimetsu no Yaiba, Hazbin Hotel, Helluva Boss, The Amazing Digital Circus, Arcane, Owari no Seraph, Neon Genesis Evangelion
-<br> ㅤㅤㅤㅤ<img width="200" src='https://github.com/hiessoovig/456/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>  <img width="503" src='https://github.com/hiessoovig/456/blob/main/Видео%20без%20названия%20—%20сделано%20в%20Clipchamp%20(1).gif?raw=true'> <img width="200" src='https://github.com/hiessoovig/456/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>
+<br> ㅤㅤㅤㅤ<img width="200" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>  <img width="503" src='https://github.com/hiessoovig/hiessoovig/blob/main/Видео%20без%20названия%20—%20сделано%20в%20Clipchamp%20(1).gif?raw=true'> <img width="200" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>
 
 </p>
 
