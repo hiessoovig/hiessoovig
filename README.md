@@ -6,7 +6,7 @@
 <br> <img width="400" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_47d34d078a0f3c58d47e84b023d1c8fd_a4d40593_1280.webp?raw=true'>
        </p>
 <p align="center" 
-<br> зови меня Хие́с! 
+<br> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'> зови меня Хие́с! 
 <br> ENFP 3w2 387 
 <br> 18 y.o. ADHD
 <br> league player, artist
