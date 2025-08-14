@@ -6,7 +6,7 @@
 <br> <img width="400" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_47d34d078a0f3c58d47e84b023d1c8fd_a4d40593_1280.webp?raw=true'>
        </p>
 <p align="center" 
-<br> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'> зови меня Хие́с! 
+<br> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'> зови меня Хие́с! <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'>
 <br> ENFP 3w2 387 
 <br> 18 y.o. ADHD
 <br> league player, artist
@@ -19,7 +19,7 @@
 </p>        
 
 <p align='center' 
-<br> <img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e76cb752c6b54de599a23995033e9ff2_ab9a8aa3_250.gif.gif?raw=true'>
+<br> <img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e64f9001c0c35a5370b6aebd8708466a_491b115e_75.png?raw=true'><img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e64f9001c0c35a5370b6aebd8708466a_491b115e_75.png?raw=true'><img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e64f9001c0c35a5370b6aebd8708466a_491b115e_75.png?raw=true'><img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e76cb752c6b54de599a23995033e9ff2_ab9a8aa3_250.gif.gif?raw=true'><img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e64f9001c0c35a5370b6aebd8708466a_491b115e_75.png?raw=true'><img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e64f9001c0c35a5370b6aebd8708466a_491b115e_75.png?raw=true'><img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e64f9001c0c35a5370b6aebd8708466a_491b115e_75.png?raw=true'>
 <br> DNI: если вы хотите доебаться до моего скина или до пейринга за который я сижу с партнёром;
 <br> сексисты/расисты/псевдотолерашки и т.д. мои шутки могут быть грязными, но я уважаю всех;
 <br> >> ранимые и чувствительные люди. лучше предупредите меня об этом
