@@ -31,9 +31,11 @@
 <p>
 <br> ㅤㅤㅤㅤㅤ<img width="240" src='https://github.com/hiessoovig/hiessoovig/blob/main/1735e1206276dfe36b971c4ec24b6c81.jpg?raw=true'><img width="240" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_00ebc151e6093402a476154aa664af36_e40cbeb1_1280.gif.gif?raw=true'><img width="240" src='https://github.com/hiessoovig/hiessoovig/blob/main/photo_2025-08-14_01-42-04.jpg?raw=true'>
 </p>
-<p>
-       <br> Фандомы!
+<p align='center'
+       <br> <strong>Фандомы!</strong>
 <br> <strong>Небельт лучший фд.</strong>
+</p>
+<p
 <br>
 <br> <strong>Игры:</strong> League of Legends, Cookie Run Kingdom, Genshin Impact, Honkai Star Rail, Zenless Zone Zero, Omori, Hollow Knight, The Binding of Isaac, Don't Starve Together, Terraria + Calamity mode, Minecraft, Stardew Walley, The Elder Scrolls V: Skyrim, We Were Here (все игры), Phasmophobia, Outer Wilds, Cuphead, The Forest, Sons of the Forest, Content Warning, Cult of the Lamb, Dark Deception, Unravel Two, Portal, Starbound, MO:Astray, Doki Doki Literature Club, Subnautica, Escape The Backrooms, Undertale, Deltarune, Overwatch, Your Boyfriend, Satsuriku no Tenshi, Fear and Hunger
 <br>
@@ -42,7 +44,9 @@
 
 </p>
 
-<p> Музыка!
+<p align='center' 
+<br> <strong>Музыка!</strong> </p>
+<p>
 <br> <strong>Любимые исполнители:</strong>
 <br> Normandie, Set it Off, Bring me the Horizon, Wind Walkers, Starset, Titans in Time, Three Days Grace, Mindless Self Indulgence, Get Scared
 <br>
