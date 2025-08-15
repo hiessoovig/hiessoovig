@@ -25,9 +25,10 @@
 <br> >> ранимые и чувствительные люди. лучше предупредите меня об этом
 </p>
 
-<p>
+<p align='center'
 <br> я очень сговорчивый и понимающий человек. если между нами возникло какое-то недопонимание - прошу всё обсуждать открыто. 
 </p>
+
 <p>
 <br> ㅤㅤㅤㅤㅤ<img width="240" src='https://github.com/hiessoovig/hiessoovig/blob/main/1735e1206276dfe36b971c4ec24b6c81.jpg?raw=true'><img width="240" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_00ebc151e6093402a476154aa664af36_e40cbeb1_1280.gif.gif?raw=true'><img width="240" src='https://github.com/hiessoovig/hiessoovig/blob/main/photo_2025-08-14_01-42-04.jpg?raw=true'>
 </p>
@@ -51,7 +52,7 @@
 <br> Normandie, Set it Off, Bring me the Horizon, Wind Walkers, Starset, Titans in Time, Three Days Grace, Mindless Self Indulgence, Get Scared
 <br>
 <br> Также слушаю:
-<br> Self Deception, Mother Mother, Blind Channel, Citizen Soldier, Skillet, In This Moment, Palisades, Caskets, From Ashes to New, I Prevail, Imminence, VRSTY, Memphis May Fire, The World Alive, Siamese, Ice Nine Kills, Merta, The Paper Melody, Awaken I Am, Wildways, SycAmour, Solence, Fall Out Boy, Bullet For My Valentine, SEVER, Bear Ghost, The Used, БИ-2, Дайте Танк (!), pyrokinesis, Мёртвые Осы, Green Apelsin
+<br> Self Deception, Mother Mother, Blind Channel, Citizen Soldier, Skillet, In This Moment, Palisades, Caskets, From Ashes to New, I Prevail, Imminence, VRSTY, Memphis May Fire, The World Alive, Siamese, Ice Nine Kills, Merta, The Paper Melody, Awaken I Am, Wildways, SycAmour, Solence, Fall Out Boy, Bullet For My Valentine, SEVER, Bear Ghost, The Used, BABYMETAL, Glass Animals, Arctic Monkeys, Loveless, Paloma, Slaves, Celldweller, Panic! At The Disco, Penelope Scott, IAMX, БИ-2, Дайте Танк (!), pyrokinesis, Мёртвые Осы, Green Apelsin, Алёна Швец, Пицца, ПОЛМАТЕРИ, Электрофорез, Монеточка, Нервы
 </p>
 <br>
 <br>
