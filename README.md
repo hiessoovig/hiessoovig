@@ -1,17 +1,17 @@
-<p align="center"
+<h1 align="center"
 <br> <strong> ЙОУ! </strong>
-</p>
+</h1>
 
-<p align="center"
+<h1 align="center"
 <br> <img width="400" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_47d34d078a0f3c58d47e84b023d1c8fd_a4d40593_1280.webp?raw=true'>
        </p>
 <p align="center" 
-<br> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'> зови меня Хие́с! <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'>
-<br> ENFP 3w2 387 
+<br> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'> <sup>зови меня Хие́с!</sup> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'>
+<br> <sup>ENFP 3w2 387 
 <br> 18 y.o. ADHD
-<br> league player, artist
+<br> league player, artist</sup>
 <br> <img src="https://komarev.com/ghpvc/?username=hiessoovig&style=for-the-badge&color=5563D7" alt="Profile Views"/>
-</p>
+</h1>
 
 <p align="center"
 <br> <img width="300" src='https://github.com/hiessoovig/hiessoovig/blob/main/4oKz5y8pWwVEX2O3PHpAOqVrJIP8ywRsaIg8ozOE6wLprO9yHimuFhF7pXMBXKXrM3T6OT7vidSx7Kf7UWxu0dDc.jpg?raw=true'>
@@ -58,8 +58,8 @@
 <br>
 <br>
 
-<p align='center' 
-<br> ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-<br> <strong>всем прочитавшим спасибо за внимание. держите еще немного кинн пикч</strong>
+<h1 align='center' 
+<br> <sup>꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
+<br> <strong>всем прочитавшим спасибо за внимание. держите еще немного кинн пикч</strong></sup>
 <br> <img width="400" src='https://github.com/hiessoovig/hiessoovig/blob/main/m_t-IjRCLBo.jpg?raw=true'> <img width="358" src='https://github.com/hiessoovig/hiessoovig/blob/main/rmSzM-RpdVo.jpg?raw=true'> <img width="400" src='https://github.com/hiessoovig/hiessoovig/blob/main/v4jp8WqFcvQ.jpg?raw=true'>
-</p>
+</h1>
