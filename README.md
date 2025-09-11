@@ -11,6 +11,13 @@
 <br> 18 y.o. ADHD
 <br> league player, artist</sup>
 <br> <img src="https://komarev.com/ghpvc/?username=hiessoovig&style=for-the-badge&color=5563D7" alt="Profile Views"/>
+<h1 align="center"
+<br> <img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_7fafb23ef460229c5ab9ef37438a8bfa_c342ba30_1280.png?raw=true'>   <img width="300" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_544267856e82ae1a6bbe829f1cca2314_f6574877_540.gif?raw=true'> <img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_7fafb23ef460229c5ab9ef37438a8bfa_c342ba30_1280.png?raw=true'>
+<br> <sup>credit: @alexparozi
+<br>  <strong> <img width="50" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_6bbd4facb7def2ccac5b23fc3a72f4f3_1be1c9d1_75.webp?raw=true'>BACK IN MY HOLLOW KNIGHT ERA<img width="50" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_6bbd4facb7def2ccac5b23fc3a72f4f3_1be1c9d1_75.webp?raw=true'>  </strong>
+<br> <img width="175" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_709008ccf7a1151f01edd0fdc6528d42_47c60d98_250.webp?raw=true'><img width="175" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_1731865356651877a80ad4df707d74bf_92600b14_1280.webp?raw=true'> <img width="175" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_709008ccf7a1151f01edd0fdc6528d42_47c60d98_250.webp?raw=true'>
+<br> <img width="100" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_c5e7204bbb166770e6bc686ed4332b43_a338a8e6_500.webp?raw=true'> <sup>"самый сильный босс - оранжепопая муха..." (с) какая-то легенда из пони тауна<img width="100" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_c5e7204bbb166770e6bc686ed4332b43_a338a8e6_500.webp?raw=true'> 
+</h1>
 </h1>
 
 <p align="center"
