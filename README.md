@@ -59,7 +59,7 @@
 <br> Normandie, Set it Off, Bring me the Horizon, Wind Walkers, Starset, Titans in Time, Three Days Grace, Mindless Self Indulgence, Get Scared
 <br>
 <br> Также слушаю:
-<br> Self Deception, Mother Mother, Blind Channel, Citizen Soldier, Skillet, In This Moment, Palisades, Caskets, From Ashes to New, I Prevail, Imminence, VRSTY, Memphis May Fire, The World Alive, Siamese, Ice Nine Kills, Merta, The Paper Melody, Awaken I Am, Wildways, SycAmour, Solence, Fall Out Boy, Bullet For My Valentine, SEVER, Bear Ghost, The Used, BABYMETAL, Glass Animals, Arctic Monkeys, Loveless, Paloma, Slaves, Celldweller, Panic! At The Disco, Penelope Scott, IAMX, Melanie Martinez, Lady Gaga, Sin Shake Sin, DECO*27, Smash Into Pieces, Infected Mushroom, Nero's Day At Disneyland, FAKE TYPE, БИ-2, Дайте Танк (!), pyrokinesis, Мёртвые Осы, Green Apelsin, Алёна Швец, Пицца, ПОЛМАТЕРИ, Электрофорез, Монеточка, Нервы
+<br> Self Deception, Mother Mother, Blind Channel, Citizen Soldier, Skillet, In This Moment, Palisades, Caskets, From Ashes to New, I Prevail, Imminence, VRSTY, Memphis May Fire, The World Alive, Siamese, Ice Nine Kills, Merta, The Paper Melody, Awaken I Am, Wildways, SycAmour, Solence, Fall Out Boy, Bullet For My Valentine, SEVER, Bear Ghost, The Used, BABYMETAL, Glass Animals, Arctic Monkeys, Loveless, Paloma, Slaves, Celldweller, Panic! At The Disco, Penelope Scott, IAMX, Melanie Martinez, Lady Gaga, Sin Shake Sin, DECO*27, Smash Into Pieces, Infected Mushroom, Nero's Day At Disneyland, FAKE TYPE, PLVTINUM, Vana, БИ-2, Дайте Танк (!), pyrokinesis, Мёртвые Осы, Green Apelsin, Алёна Швец, Пицца, ПОЛМАТЕРИ, Электрофорез, Монеточка, Нервы
 </p>
 <br>
 <br>
