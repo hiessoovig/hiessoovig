@@ -7,9 +7,9 @@
        </p>
 <p align="center" 
 <br> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'> <sup>зови меня Хие́с!</sup> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'>
-<br> <sup>ENFP 3w2 387 
+<br> <sup>ENFP so/sx3w2 387 EVLF
 <br> 19 y.o. ADHD
-<br> league player, artist</sup>
+<br> LoL player, artist</sup>
 <br> <img src="https://komarev.com/ghpvc/?username=hiessoovig&style=for-the-badge&color=5563D7" alt="Profile Views"/>
 <h1 align="center"
 <br> <img width='150' src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_140b7ecaaf595db66c453ad946f3dc55_76607e65_1280.png?raw=true'><img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_7fafb23ef460229c5ab9ef37438a8bfa_c342ba30_1280.png?raw=true'>   <img width="300" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_544267856e82ae1a6bbe829f1cca2314_f6574877_540.gif?raw=true'> <img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_7fafb23ef460229c5ab9ef37438a8bfa_c342ba30_1280.png?raw=true'><img width='150' src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_140b7ecaaf595db66c453ad946f3dc55_76607e65_1280222.png?raw=true'>
