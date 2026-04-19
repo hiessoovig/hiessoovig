@@ -7,7 +7,7 @@
        </p>
 <p align="center" 
 <br> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'> <sup>зови меня Хие́с!</sup> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'>
-<br> <sup>ENFP V²E¹L¹F¹
+<br> <sup>ENFP so7 738 V²E¹L¹F¹
 <br> 19 y.o. ADHD
 <br> LoL player, artist</sup>
 <br> <img src="https://komarev.com/ghpvc/?username=hiessoovig&style=for-the-badge&color=5563D7" alt="Profile Views"/>
