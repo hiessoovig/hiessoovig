@@ -8,7 +8,7 @@
 <p align="center" 
 <br> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'> <sup>зови меня Хие́с!</sup> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'>
 <br> <sup>ENFP so/sx7sx3so8 V²L⁴E¹F¹
-<br> 19 y.o. ADHD
+<br> 20 y.o. ADHD
 <br> LoL player, artist</sup>
 <br> <img src="https://komarev.com/ghpvc/?username=hiessoovig&style=for-the-badge&color=5563D7" alt="Profile Views"/>
 <h1 align="center"
@@ -22,14 +22,12 @@
 
 <p align="center"
 <br> <img width="300" src='https://github.com/hiessoovig/hiessoovig/blob/main/4oKz5y8pWwVEX2O3PHpAOqVrJIP8ywRsaIg8ozOE6wLprO9yHimuFhF7pXMBXKXrM3T6OT7vidSx7Kf7UWxu0dDc.jpg?raw=true'>
-<br> зачастую сижу в пт рядом с моим  <a href="https://github.com/zefranar">партнёром</a> и друзьями. большую часть времени offtab, так что w2i!
+<br> большую часть времени offtab, так что w2i!
 </p>        
 
 <p align='center' 
 <br> <img width="45" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e64f9001c0c35a5370b6aebd8708466a_491b115e_75.png?raw=true'> <img width="45" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e64f9001c0c35a5370b6aebd8708466a_491b115e_75.png?raw=true'><img width="105" src='https://github.com/hiessoovig/hiessoovig/blob/main/90d55e8c343bb9c350c351ee6f430674.gif?raw=true'><img width="45" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e64f9001c0c35a5370b6aebd8708466a_491b115e_75.png?raw=true'><img width="45" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e64f9001c0c35a5370b6aebd8708466a_491b115e_75.png?raw=true'><img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e76cb752c6b54de599a23995033e9ff2_ab9a8aa3_250.gif.gif?raw=true'><img width="45" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e64f9001c0c35a5370b6aebd8708466a_491b115e_75.png?raw=true'><img width="45" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e64f9001c0c35a5370b6aebd8708466a_491b115e_75.png?raw=true'><img width="105" src='https://github.com/hiessoovig/hiessoovig/blob/main/90d55e8c343bb9c350c351ee6f430674.gif?raw=true'><img width="45" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e64f9001c0c35a5370b6aebd8708466a_491b115e_75.png?raw=true'><img width="45" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_e64f9001c0c35a5370b6aebd8708466a_491b115e_75.png?raw=true'>
-<br> DNI: если вы хотите доебаться до моего скина или до пейринга за который я сижу с партнёром;
-<br> сексисты/расисты/псевдотолерашки и т.д. мои шутки могут быть грязными, но я уважаю всех;
-<br> >> ранимые и чувствительные люди. лучше предупредите меня об этом
+
 </p>
 
 <p align='center'
@@ -41,7 +39,6 @@
 </p>
 <p align='center'
        <br> <strong>Фандомы!</strong>
-<br> <strong>Небельт лучший фд.</strong>
 </p>
 <p
 <br>
