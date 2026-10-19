@@ -1,5 +1,6 @@
 <h1 align="center"
-<br> <strong> ЙОУ! </strong>
+<br> arms, body, legs, flesh, skin, bone, sinew 
+<br> <strong> GOOD LUCK! </strong>
 </h1>
 
 <h1 align="center"
@@ -44,7 +45,7 @@
 <br>
 <br> <strong>Игры:</strong> League of Legends, Cookie Run Kingdom, Genshin Impact, Honkai Star Rail, Zenless Zone Zero, Omori, Hollow Knight, The Binding of Isaac, Don't Starve Together, Terraria + Calamity mode, Minecraft, Stardew Walley, The Elder Scrolls V: Skyrim, We Were Here (все игры), Phasmophobia, Outer Wilds, Cuphead, The Forest, Sons of the Forest, Content Warning, Cult of the Lamb, Dark Deception, Unravel Two, Portal, Starbound, MO:Astray, Doki Doki Literature Club, Subnautica, Escape The Backrooms, Undertale, Deltarune, Overwatch, Your Boyfriend, Satsuriku no Tenshi, Fear and Hunger, Fran Bow, Little Misfortune, Outlast, Five Nights at Freddy's, Poppy Playtime, World of Tanks, Dying Light, Little Nightmares, KHOLAT, Neverending Nightmares, 60 Seconds, Heroes Of Might and Magic 3, Blasphemous, Signalis, Friday Night Funkin', Celeste
 <br>
-<br><strong>Аниме, манги, веб-комиксы, мультфильмы:</strong> Homestuck, Heavens Offical's Blessing, Jujutsu Kaisen, Bungou Stray Dogs, Demon Slayer: Kimetsu no Yaiba, Hazbin Hotel, Helluva Boss, The Amazing Digital Circus, Arcane, Owari no Seraph, Neon Genesis Evangelion
+<br><strong>Аниме, манги, веб-комиксы, мультфильмы:</strong> Homestuck, Heavens Offical's Blessing, Jujutsu Kaisen, Bungou Stray Dogs, Demon Slayer: Kimetsu no Yaiba, Hazbin Hotel, Helluva Boss, The Amazing Digital Circus, Arcane, Owari no Seraph, Neon Genesis Evangelion, Oshi no Ko
 <br> ㅤㅤㅤㅤㅤㅤ<img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>  <img width="375" src='https://github.com/hiessoovig/hiessoovig/blob/main/Видео%20без%20названия%20—%20сделано%20в%20Clipchamp%20(1).gif?raw=true'> <img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>
 
 </p>
@@ -53,10 +54,10 @@
 <br> <strong>Музыка!</strong> </p>
 <p>
 <br> <strong>Любимые исполнители:</strong>
-<br> Normandie, Set it Off, Bring me the Horizon, Wind Walkers, Starset, Titans in Time, Three Days Grace, Mindless Self Indulgence, Get Scared
+<br> Normandie, Set it Off, Bring me the Horizon, Wind Walkers, Starset, Titans in Time, Three Days Grace, Mindless Self Indulgence, Get Scared, Mother Mother, Vana, Glass Animals, Penelope Scott
 <br>
 <br> Также слушаю:
-<br> Self Deception, Mother Mother, Blind Channel, Citizen Soldier, Skillet, In This Moment, Palisades, Caskets, From Ashes to New, I Prevail, Imminence, VRSTY, Memphis May Fire, The World Alive, Siamese, Ice Nine Kills, Merta, The Paper Melody, Awaken I Am, Wildways, SycAmour, Solence, Fall Out Boy, Bullet For My Valentine, SEVER, Bear Ghost, The Used, BABYMETAL, Glass Animals, Arctic Monkeys, Loveless, Paloma, Slaves, Celldweller, Panic! At The Disco, Penelope Scott, IAMX, Melanie Martinez, Lady Gaga, Sin Shake Sin, DECO*27, Smash Into Pieces, Infected Mushroom, Nero's Day At Disneyland, FAKE TYPE, PLVTINUM, Vana, БИ-2, Дайте Танк (!), pyrokinesis, Мёртвые Осы, Green Apelsin, Алёна Швец, Пицца, ПОЛМАТЕРИ, Электрофорез, Монеточка, Нервы
+<br> Self Deception, Blind Channel, Citizen Soldier, Skillet, In This Moment, Palisades, Caskets, From Ashes to New, I Prevail, Imminence, VRSTY, Memphis May Fire, The World Alive, Siamese, Ice Nine Kills, Merta, The Paper Melody, Awaken I Am, Wildways, SycAmour, Solence, Fall Out Boy, Bullet For My Valentine, SEVER, Bear Ghost, The Used, BABYMETAL, Arctic Monkeys, Loveless, Paloma, Slaves, Celldweller, Panic! At The Disco, IAMX, Melanie Martinez, Lady Gaga, Sin Shake Sin, DECO*27, Smash Into Pieces, Infected Mushroom, Nero's Day At Disneyland, FAKE TYPE, PLVTINUM, 8 Graves, Autumn Kings, Billie Eilish, Bohnes, Eisbrecher, Escape the Fate, EURINGER, Fame on Fire, grandson, Hollywood Undead, The Home Team, Imagine Dragons, ivri, Måneskin, MOTHICA, Motionles in White, Nine Inch Nails, OOMPH!, Shinedown, Sick Puppies, Unlike Pluto, Versus Me, Waitress, Yuyoyuppe, AViVA, Bo Burnham, Charli XCX, emlyn, The Living Tombstone, Phantogram, RedHook, Tally Hall, passengerprincess, Ayesha Erotica, Chase Icon, Only Fire, underscores, femtanyl, aidn., Fresca, milkypossum, Saska, Tiffany Day, БИ-2, Дайте Танк (!), pyrokinesis, Мёртвые Осы, Green Apelsin, Алёна Швец, Пицца, ПОЛМАТЕРИ, Электрофорез, Монеточка, Нервы, тёмный принц, Пошлая Молли, Lida, , Noize MC, Glukoza, DEAD BLONDE, кис-кис, nyan.mp3
 </p>
 <br>
 <br>
