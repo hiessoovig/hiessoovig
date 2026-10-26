@@ -41,7 +41,7 @@
 <p align='center'
        <br> <strong>фандомы</strong>
 </p>
-<p
+
 <details>
 <summary> <strong>игры:</strong> </summary>
        League of Legends, Cookie Run Kingdom, Genshin Impact, Honkai Star Rail, Zenless Zone Zero, Omori, Hollow Knight, The Binding of Isaac, Don't Starve Together, Terraria + Calamity mode, Minecraft, Stardew Walley, The Elder Scrolls V: Skyrim, We Were Here (все игры), Phasmophobia, Outer Wilds, Cuphead, The Forest, Sons of the Forest, Content Warning, Cult of the Lamb, Dark Deception, Unravel Two, Portal, Starbound, MO:Astray, Doki Doki Literature Club, Subnautica, Escape The Backrooms, Undertale, Deltarune, Overwatch, Your Boyfriend, Satsuriku no Tenshi, Fear and Hunger, Fran Bow, Little Misfortune, Outlast, Five Nights at Freddy's, Poppy Playtime, World of Tanks, Dying Light, Little Nightmares, KHOLAT, Neverending Nightmares, 60 Seconds, Heroes Of Might and Magic 3, Blasphemous, Signalis, Friday Night Funkin', Celeste
