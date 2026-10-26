@@ -28,7 +28,7 @@
 
 <p align="center"
 <br> <img width="300" src='https://github.com/hiessoovig/hiessoovig/blob/main/4oKz5y8pWwVEX2O3PHpAOqVrJIP8ywRsaIg8ozOE6wLprO9yHimuFhF7pXMBXKXrM3T6OT7vidSx7Kf7UWxu0dDc.jpg?raw=true'>
-<br align='center'> <h2> w2i, большую часть времени offtab </h2>
+<h2 align='center'> w2i, большую часть времени offtab </h2>
 </p>        
 
 <p align='center' 
@@ -37,7 +37,7 @@
 </p>
 
 <p 
-<br align='center'> <h2> я очень сговорчивый и понимающий человек. если между нами возникло какое-то недопонимание - прошу всё обсуждать открыто. </h2>
+<h2 align='center'> я очень сговорчивый и понимающий человек. если между нами возникло какое-то недопонимание - прошу всё обсуждать открыто. </h2>
 </p>
 
 <p>
