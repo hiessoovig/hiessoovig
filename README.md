@@ -43,8 +43,8 @@
 <p>
 <br> ㅤㅤㅤㅤㅤ<img width="240" src='https://github.com/hiessoovig/hiessoovig/blob/main/1735e1206276dfe36b971c4ec24b6c81.jpg?raw=true'><img width="240" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_00ebc151e6093402a476154aa664af36_e40cbeb1_1280.gif.gif?raw=true'><img width="240" src='https://github.com/hiessoovig/hiessoovig/blob/main/photo_2025-08-14_01-42-04.jpg?raw=true'>
 </p>
-<p align='center'>
-       <br> <h1> <strong>фандомы </h1> </strong>
+<p>
+       <br> <h1 align='center'> <strong>фандомы </h1> </strong>
 </p>
 
 <details align='center'>
@@ -56,7 +56,7 @@
        Homestuck, Heavens Offical's Blessing, Jujutsu Kaisen, Bungou Stray Dogs, Demon Slayer: Kimetsu no Yaiba, Hazbin Hotel, Helluva Boss, The Amazing Digital Circus, Arcane, Owari no Seraph, Neon Genesis Evangelion, Oshi no Ko, Over The Garden Wall, The Boys
 </details>
 
-<br align='center'> <h1> <strong>музыка </h1> </strong> </p>
+<br> <h1 align='center'> <strong>музыка </h1> </strong> </p>
 <details align='center'>
 <summary> <strong>любимые исполнители</strong> </summary>
 Normandie, Mother Mother, Set it Off, Bring me the Horizon, Wind Walkers, Starset, Penelope Scott, Three Days Grace, Mindless Self Indulgence, Get Scared, Vana, Glass Animals, Titans in Time
