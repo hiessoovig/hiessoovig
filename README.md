@@ -17,14 +17,7 @@
        сексисты расисты педофилы грумеры зоофилы etc
       <br> люди младше 18, я не против общения, но друзьями нам не быть
 </details>
-<h1 align="center"
-<br> <img width='150' src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_140b7ecaaf595db66c453ad946f3dc55_76607e65_1280.png?raw=true'><img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_7fafb23ef460229c5ab9ef37438a8bfa_c342ba30_1280.png?raw=true'>   <img width="300" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_544267856e82ae1a6bbe829f1cca2314_f6574877_540.gif?raw=true'> <img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_7fafb23ef460229c5ab9ef37438a8bfa_c342ba30_1280.png?raw=true'><img width='150' src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_140b7ecaaf595db66c453ad946f3dc55_76607e65_1280222.png?raw=true'>
-<br> <sup>credit: @alexparozi
-<br>  <strong> <img width="50" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_6bbd4facb7def2ccac5b23fc3a72f4f3_1be1c9d1_75.webp?raw=true'>BACK IN MY HOLLOW KNIGHT ERA<img width="50" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_6bbd4facb7def2ccac5b23fc3a72f4f3_1be1c9d1_75.webp?raw=true'>  </strong>
-<br> <img width="175" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_709008ccf7a1151f01edd0fdc6528d42_47c60d98_250.webp?raw=true'><img width="175" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_1731865356651877a80ad4df707d74bf_92600b14_1280.webp?raw=true'> <img width="175" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_709008ccf7a1151f01edd0fdc6528d42_47c60d98_250.webp?raw=true'>
-<br> <img width="100" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_c5e7204bbb166770e6bc686ed4332b43_a338a8e6_500.webp?raw=true'> <sup>"самый сильный босс - оранжепопая муха..." (с) какая-то легенда из пони тауна<img width="100" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_c5e7204bbb166770e6bc686ed4332b43_a338a8e6_500.webp?raw=true'> 
-</h1>
-</h1>
+
 
 <p align="center"
 <br> <img width="300" src='https://github.com/hiessoovig/hiessoovig/blob/main/4oKz5y8pWwVEX2O3PHpAOqVrJIP8ywRsaIg8ozOE6wLprO9yHimuFhF7pXMBXKXrM3T6OT7vidSx7Kf7UWxu0dDc.jpg?raw=true'>
@@ -70,7 +63,14 @@ Self Deception, Blind Channel, Citizen Soldier, Skillet, In This Moment, Palisad
 <br>
 <br>
 <br>
-
+<h1 align="center"
+<br> <img width='150' src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_140b7ecaaf595db66c453ad946f3dc55_76607e65_1280.png?raw=true'><img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_7fafb23ef460229c5ab9ef37438a8bfa_c342ba30_1280.png?raw=true'>   <img width="300" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_544267856e82ae1a6bbe829f1cca2314_f6574877_540.gif?raw=true'> <img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_7fafb23ef460229c5ab9ef37438a8bfa_c342ba30_1280.png?raw=true'><img width='150' src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_140b7ecaaf595db66c453ad946f3dc55_76607e65_1280222.png?raw=true'>
+<br> <sup>credit: @alexparozi
+<br>  <strong> <img width="50" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_6bbd4facb7def2ccac5b23fc3a72f4f3_1be1c9d1_75.webp?raw=true'>BACK IN MY HOLLOW KNIGHT ERA<img width="50" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_6bbd4facb7def2ccac5b23fc3a72f4f3_1be1c9d1_75.webp?raw=true'>  </strong>
+<br> <img width="175" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_709008ccf7a1151f01edd0fdc6528d42_47c60d98_250.webp?raw=true'><img width="175" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_1731865356651877a80ad4df707d74bf_92600b14_1280.webp?raw=true'> <img width="175" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_709008ccf7a1151f01edd0fdc6528d42_47c60d98_250.webp?raw=true'>
+<br> <img width="100" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_c5e7204bbb166770e6bc686ed4332b43_a338a8e6_500.webp?raw=true'> <sup>"самый сильный босс - оранжепопая муха..." (с) какая-то легенда из пони тауна<img width="100" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_c5e7204bbb166770e6bc686ed4332b43_a338a8e6_500.webp?raw=true'> 
+</h1>
+</h1>
 <h1 align='center' 
 <br> <sup>꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 <br> <strong>всем прочитавшим спасибо за внимание. держите еще немного кинн пикч</strong></sup>
