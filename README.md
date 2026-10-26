@@ -55,8 +55,7 @@
 <summary> <strong>аниме, манги, веб-комиксы, мультсериалы, сериалы </strong> </summary>
        Homestuck, Heavens Offical's Blessing, Jujutsu Kaisen, Bungou Stray Dogs, Demon Slayer: Kimetsu no Yaiba, Hazbin Hotel, Helluva Boss, The Amazing Digital Circus, Arcane, Owari no Seraph, Neon Genesis Evangelion, Oshi no Ko, Over The Garden Wall, The Boys
 </details>
-<br> ㅤㅤ<img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>  <img width="375" src='https://github.com/hiessoovig/hiessoovig/blob/main/Видео%20без%20названия%20—%20сделано%20в%20Clipchamp%20(1).gif?raw=true'> <img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>
-
+<br><img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>  <img width="375" src='https://github.com/hiessoovig/hiessoovig/blob/main/Видео%20без%20названия%20—%20сделано%20в%20Clipchamp%20(1).gif?raw=true'> <img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>
 <p align='center' 
 <br> <strong>музыка</strong> </p>
 <details align='center'>
