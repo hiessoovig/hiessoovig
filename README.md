@@ -12,6 +12,11 @@
 <br> 20 y.o. ADHD
 <br> LoL player, artist</sup>
 <br> <img src="https://komarev.com/ghpvc/?username=hiessoovig&style=for-the-badge&color=5563D7" alt="Profile Views"/>
+<details align='center'> 
+<summary> <strong> DNI</strong> /summary> 
+       сексисты расисты педофилы грумеры зоофилы etc
+       люди младше 18, я не против общения, но друзьями нам не быть
+</details>
 <h1 align="center"
 <br> <img width='150' src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_140b7ecaaf595db66c453ad946f3dc55_76607e65_1280.png?raw=true'><img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_7fafb23ef460229c5ab9ef37438a8bfa_c342ba30_1280.png?raw=true'>   <img width="300" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_544267856e82ae1a6bbe829f1cca2314_f6574877_540.gif?raw=true'> <img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_7fafb23ef460229c5ab9ef37438a8bfa_c342ba30_1280.png?raw=true'><img width='150' src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_140b7ecaaf595db66c453ad946f3dc55_76607e65_1280222.png?raw=true'>
 <br> <sup>credit: @alexparozi
@@ -43,23 +48,23 @@
 </p>
 
 <details align='center'>
-<summary> <strong>игры:</strong> </summary>
+<summary> <strong>игры</strong> </summary>
        League of Legends, Cookie Run Kingdom, Genshin Impact, Honkai Star Rail, Zenless Zone Zero, Omori, Hollow Knight, The Binding of Isaac, Don't Starve Together, Terraria + Calamity mode, Minecraft, Stardew Walley, The Elder Scrolls V: Skyrim, We Were Here (все игры), Phasmophobia, Outer Wilds, Cuphead, The Forest, Sons of the Forest, Content Warning, Cult of the Lamb, Dark Deception, Unravel Two, Portal, Starbound, MO:Astray, Doki Doki Literature Club, Subnautica, Escape The Backrooms, Undertale, Deltarune, Overwatch, Your Boyfriend, Satsuriku no Tenshi, Fear and Hunger, Fran Bow, Little Misfortune, Outlast, Five Nights at Freddy's, Poppy Playtime, World of Tanks, Dying Light, Little Nightmares, KHOLAT, Neverending Nightmares, 60 Seconds, Heroes Of Might and Magic 3, Blasphemous, Signalis, Friday Night Funkin', Celeste
 </details>
-<details>
-<summary> <strong>аниме, манги, веб-комиксы, мультсериалы, сериалы: </strong> </summary>
+<details align='center'>
+<summary> <strong>аниме, манги, веб-комиксы, мультсериалы, сериалы </strong> </summary>
        Homestuck, Heavens Offical's Blessing, Jujutsu Kaisen, Bungou Stray Dogs, Demon Slayer: Kimetsu no Yaiba, Hazbin Hotel, Helluva Boss, The Amazing Digital Circus, Arcane, Owari no Seraph, Neon Genesis Evangelion, Oshi no Ko, Over The Garden Wall, The Boys
 </details>
 <br> ㅤㅤㅤㅤㅤㅤ<img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>  <img width="375" src='https://github.com/hiessoovig/hiessoovig/blob/main/Видео%20без%20названия%20—%20сделано%20в%20Clipchamp%20(1).gif?raw=true'> <img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>
 
 <p align='center' 
 <br> <strong>музыка</strong> </p>
-<details>
-<summary> <strong>любимые исполнители:</strong> </summary>
+<details align='center'>
+<summary> <strong>любимые исполнители</strong> </summary>
 Normandie, Mother Mother, Set it Off, Bring me the Horizon, Wind Walkers, Starset, Penelope Scott, Three Days Grace, Mindless Self Indulgence, Get Scared, Vana, Glass Animals, Titans in Time
 </details>
-<details>
-<summary>также слушаю:</summary>
+<details align='center'>
+<summary>также слушаю</summary>
 Self Deception, Blind Channel, Citizen Soldier, Skillet, In This Moment, Palisades, Caskets, From Ashes to New, I Prevail, Imminence, VRSTY, Memphis May Fire, The World Alive, Siamese, Ice Nine Kills, Merta, The Paper Melody, Awaken I Am, Wildways, SycAmour, Solence, Fall Out Boy, Bullet For My Valentine, SEVER, Bear Ghost, The Used, BABYMETAL, Arctic Monkeys, Loveless, Paloma, Slaves, Celldweller, Panic! At The Disco, IAMX, Melanie Martinez, Lady Gaga, Sin Shake Sin, DECO*27, Smash Into Pieces, Infected Mushroom, Nero's Day At Disneyland, FAKE TYPE, PLVTINUM, 8 Graves, Autumn Kings, Billie Eilish, Bohnes, Eisbrecher, Escape the Fate, EURINGER, Fame on Fire, grandson, Hollywood Undead, The Home Team, Imagine Dragons, ivri, Måneskin, MOTHICA, Motionles in White, Nine Inch Nails, OOMPH!, Shinedown, Sick Puppies, Unlike Pluto, Versus Me, Waitress, Yuyoyuppe, AViVA, Bo Burnham, Charli XCX, emlyn, The Living Tombstone, Phantogram, RedHook, Tally Hall, passengerprincess, Ayesha Erotica, Chase Icon, Only Fire, underscores, femtanyl, aidn., Fresca, milkypossum, Saska, Tiffany Day, БИ-2, Дайте Танк (!), pyrokinesis, Мёртвые Осы, Green Apelsin, Алёна Швец, Пицца, ПОЛМАТЕРИ, Электрофорез, Монеточка, Нервы, тёмный принц, Пошлая Молли, Lida, Noize MC, Glukoza, DEAD BLONDE, кис-кис, nyan.mp3
 </p>
 <br>
