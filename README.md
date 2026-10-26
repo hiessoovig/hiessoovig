@@ -13,7 +13,7 @@
 <br> LoL player, artist</sup>
 <br> <img src="https://komarev.com/ghpvc/?username=hiessoovig&style=for-the-badge&color=5563D7" alt="Profile Views"/>
 <details align='center'> 
-<summary> <strong> DNI</strong> /summary> 
+<summary> <strong> DNI</strong> </summary> 
        сексисты расисты педофилы грумеры зоофилы etc
        люди младше 18, я не против общения, но друзьями нам не быть
 </details>
