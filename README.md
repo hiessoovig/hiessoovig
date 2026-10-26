@@ -55,7 +55,7 @@
 <summary> <strong>аниме, манги, веб-комиксы, мультсериалы, сериалы </strong> </summary>
        Homestuck, Heavens Offical's Blessing, Jujutsu Kaisen, Bungou Stray Dogs, Demon Slayer: Kimetsu no Yaiba, Hazbin Hotel, Helluva Boss, The Amazing Digital Circus, Arcane, Owari no Seraph, Neon Genesis Evangelion, Oshi no Ko, Over The Garden Wall, The Boys
 </details>
-<br> ㅤㅤㅤㅤㅤㅤ<img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>  <img width="375" src='https://github.com/hiessoovig/hiessoovig/blob/main/Видео%20без%20названия%20—%20сделано%20в%20Clipchamp%20(1).gif?raw=true'> <img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>
+<br> ㅤㅤ<img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>  <img width="375" src='https://github.com/hiessoovig/hiessoovig/blob/main/Видео%20без%20названия%20—%20сделано%20в%20Clipchamp%20(1).gif?raw=true'> <img width="150" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_a93afa5c44814ab67ba54d33026ed54c_4d918eb0_250.gif.gif?raw=true'>
 
 <p align='center' 
 <br> <strong>музыка</strong> </p>
@@ -66,6 +66,7 @@ Normandie, Mother Mother, Set it Off, Bring me the Horizon, Wind Walkers, Starse
 <details align='center'>
 <summary>также слушаю</summary>
 Self Deception, Blind Channel, Citizen Soldier, Skillet, In This Moment, Palisades, Caskets, From Ashes to New, I Prevail, Imminence, VRSTY, Memphis May Fire, The World Alive, Siamese, Ice Nine Kills, Merta, The Paper Melody, Awaken I Am, Wildways, SycAmour, Solence, Fall Out Boy, Bullet For My Valentine, SEVER, Bear Ghost, The Used, BABYMETAL, Arctic Monkeys, Loveless, Paloma, Slaves, Celldweller, Panic! At The Disco, IAMX, Melanie Martinez, Lady Gaga, Sin Shake Sin, DECO*27, Smash Into Pieces, Infected Mushroom, Nero's Day At Disneyland, FAKE TYPE, PLVTINUM, 8 Graves, Autumn Kings, Billie Eilish, Bohnes, Eisbrecher, Escape the Fate, EURINGER, Fame on Fire, grandson, Hollywood Undead, The Home Team, Imagine Dragons, ivri, Måneskin, MOTHICA, Motionles in White, Nine Inch Nails, OOMPH!, Shinedown, Sick Puppies, Unlike Pluto, Versus Me, Waitress, Yuyoyuppe, AViVA, Bo Burnham, Charli XCX, emlyn, The Living Tombstone, Phantogram, RedHook, Tally Hall, passengerprincess, Ayesha Erotica, Chase Icon, Only Fire, underscores, femtanyl, aidn., Fresca, milkypossum, Saska, Tiffany Day, БИ-2, Дайте Танк (!), pyrokinesis, Мёртвые Осы, Green Apelsin, Алёна Швец, Пицца, ПОЛМАТЕРИ, Электрофорез, Монеточка, Нервы, тёмный принц, Пошлая Молли, Lida, Noize MC, Glukoza, DEAD BLONDE, кис-кис, nyan.mp3
+</details>
 </p>
 <br>
 <br>
