@@ -15,7 +15,7 @@
 <details align='center'> 
 <summary> <strong> DNI</strong> </summary> 
        сексисты расисты педофилы грумеры зоофилы etc
-       люди младше 18, я не против общения, но друзьями нам не быть
+      <br> люди младше 18, я не против общения, но друзьями нам не быть
 </details>
 <h1 align="center"
 <br> <img width='150' src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_140b7ecaaf595db66c453ad946f3dc55_76607e65_1280.png?raw=true'><img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_7fafb23ef460229c5ab9ef37438a8bfa_c342ba30_1280.png?raw=true'>   <img width="300" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_544267856e82ae1a6bbe829f1cca2314_f6574877_540.gif?raw=true'> <img width="40" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_7fafb23ef460229c5ab9ef37438a8bfa_c342ba30_1280.png?raw=true'><img width='150' src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_140b7ecaaf595db66c453ad946f3dc55_76607e65_1280222.png?raw=true'>
