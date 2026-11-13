@@ -7,7 +7,7 @@
 <br> <img width="400" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_47d34d078a0f3c58d47e84b023d1c8fd_a4d40593_1280.webp?raw=true'>
        </p>
 <p align="center" 
-<br> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'> <sup>зови меня Хие́с!</sup> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'>
+<br> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'> <sup>зови меня хие́с!</sup> <img width="20" src='https://github.com/hiessoovig/hiessoovig/blob/main/tumblr_4cd77c4e90b066e8fca6fa99e50939a2_a901503f_75.webp?raw=true'>
 <br> <sup>ENFP so/sx7so2so8 V²L⁴E¹F¹
 <br> 20 y.o. ADHD
 <br> LoL player, artist</sup>
