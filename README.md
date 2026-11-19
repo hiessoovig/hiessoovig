@@ -46,7 +46,7 @@
 </details>
 <details align='center'>
 <summary> <strong>аниме, манги, веб-комиксы, мультсериалы, сериалы </strong> </summary>
-       Homestuck, Heavens Offical's Blessing, Jujutsu Kaisen, Bungou Stray Dogs, Demon Slayer: Kimetsu no Yaiba, Hazbin Hotel, Helluva Boss, The Amazing Digital Circus, Arcane, Owari no Seraph, Neon Genesis Evangelion, Oshi no Ko, Over The Garden Wall, The Boys
+       Homestuck, Made in Abyss, The Amazing Digital Circus, Arcane, Owari no Seraph, Neon Genesis Evangelion, Oshi no Ko, Over The Garden Wall, The Boys, Heavens Offical's Blessing, Jujutsu Kaisen, Bungou Stray Dogs, Demon Slayer: Kimetsu no Yaiba, Hazbin Hotel, Helluva Boss
 </details>
 
 <br> <h1 align='center'> <strong>музыка </h1> </strong> </p>
